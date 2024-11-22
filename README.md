@@ -1,1 +1,1 @@
-# intellectual-studio.de
+# intelle
